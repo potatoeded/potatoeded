@@ -1,1 +1,1 @@
-https://rts-chess.glitch.me/
+Bye
